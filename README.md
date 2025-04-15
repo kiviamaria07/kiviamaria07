@@ -1,3 +1,3 @@
 ## Hi there 👋
-olá, me chamo kivia
+olá, meu nome é kivia
 
